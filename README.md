@@ -1,16 +1,14 @@
-## Hi there 👋
+~My~ ~Facebook~ : [Long Trần](https://www.facebook.com/tran.long.231762)
 
-<!--
-**dragon3012009/dragon3012009** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+~K66~  ~CBH~ 
 
-Here are some ideas to get you started:
+[~My~  ~template~](https://ideone.com/H5Sw8A)
+>!
+>! Sở thích : [BITCOIN](https://www.mexc.com/vi-VN/exchange/BTC_USDT) , [ETH](https://www.mexc.com/vi-VN/exchange/ETH_USDT) , [SOL](https://www.mexc.com/vi-VN/exchange/SOL_USDT) , ..
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+>! Thành tựu : 
+>! 🥈 DHBB năm 2025 
+>!
+>! Có khoản tiết kiệm nhỏ 160 💲 triệu năm lớp 10 
+
+>! Câu nói kinh điển : "Hạnh phúc có thể không mua được bằng tiền, nhưng không có tiền chắc chắn không có hạnh phúc ! "
